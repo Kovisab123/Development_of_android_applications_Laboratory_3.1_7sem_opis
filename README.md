@@ -1,0 +1,1 @@
+# Development_of_android_applications_Laboratory_3.1_7sem_opis
